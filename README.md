@@ -2,4 +2,4 @@
 
 ## Muito bem-vindo ao meu perfil
 
-**Aluna: colégio Estadual do Campo Palmital**
+**Aluna: Colégio Estadual do Campo Palmital**
